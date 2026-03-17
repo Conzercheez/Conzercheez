@@ -1,16 +1,14 @@
-## Hi there 👋
+# slash_e_wave
+₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
-<!--
-**Conzercheez/Conzercheez** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- we are system members, do keep that in mind.
+  > (albeit there's only two of us who actually plays ponytown, aka me & Soup lawl)
+- bodily 21
+- we like to chill.
+- we tend to be in many fandoms, even ones we dont have avatars of.
+- very normal about the collinlock16 continuity & stanley parable
+- not really much to say except to feel free to int with us luh. just respect our boundaries.
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
+  
+(we're not to fond of writing out detailed infos as you can tell- if you want to get to know us more, really, interacting is the best way to go)
