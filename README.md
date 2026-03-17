@@ -22,4 +22,4 @@
 - A GenAI supporter
 - Racist, Anti-LGBTQ+, Ableist, Xenophobic etc.
 - If you're a piece of shit overall.
-- Sysmeds (no offense, a lot of y'all are rude asf.)
+- Sysmeds (no offense, its just mainly bc a lot of y'all are rude asf.)
