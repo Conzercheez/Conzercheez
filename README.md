@@ -6,9 +6,9 @@
 - bodily 21
 - we like to chill.
 - we tend to be in many fandoms, even ones we dont have avatars of.
-- very normal about the collinlock16 continuity & stanley parable
+- very normal about the collinlock16 continuity & the stanley parable
 - not really much to say except to feel free to int with us luh. just respect our boundaries.
-- @SOUPBEGONE31 hi
+- [@**SOUPBEGONE31**](https://github.com/SOUPBEGONE31) hi lawl
 
 ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
   
