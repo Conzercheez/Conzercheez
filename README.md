@@ -8,6 +8,7 @@
 - we tend to be in many fandoms, even ones we dont have avatars of.
 - very normal about the collinlock16 continuity & stanley parable
 - not really much to say except to feel free to int with us luh. just respect our boundaries.
+- @SOUPBEGONE31 hi
 
 ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
   
