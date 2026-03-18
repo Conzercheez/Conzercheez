@@ -1,4 +1,6 @@
 # slash_e_wave
+ㅤㅤㅤㅤ ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
+
 ㅤㅤㅤㅤ" don't know what you [lie](https://open.spotify.com/track/7falOwHJ9MjskdcNehIh79?si=429f421f71824a16) for anyway. "
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ" now there's nothing [left](https://open.spotify.com/track/7falOwHJ9MjskdcNehIh79?si=523b4379e7c640f5) to say. "
