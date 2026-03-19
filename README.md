@@ -8,6 +8,7 @@
 
 ㅤㅤㅤㅤ ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
+ㅤ
 - we are system members, do keep that in mind.
   > (albeit there's only two of us who actually plays ponytown, aka me & Soup lawl)
 - bodily 20
@@ -18,14 +19,24 @@
 - not really much to say except to feel free to int with us luh. just respect our boundaries.
 - [@**SOUPBEGONE31**](https://github.com/SOUPBEGONE31) hi lawl
 - we don't really initiate conversations a lot.
+
+  ㅤ
   
 ㅤㅤㅤㅤ ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
+
+ㅤ
   
 we're not to fond of writing out detailed infos.
 
 if you want to get to know us more, really, interacting is the best way to go.
 
+ㅤ
+
+
 ㅤㅤㅤㅤ ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
+
+ㅤ
+
 
 **__DNI if you're...__**
 - A GenAI supporter
