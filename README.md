@@ -30,13 +30,14 @@ we're not to fond of writing out detailed infos.
 
 if you want to get to know us more, really, interacting is the best way to go.
 
+> do note I also get disoriented a lot randomly, usually I just kinda shut myself up when that happens so excuse me for that if i suddenly stop responding to stuff luh. - Conzer
 ㅤ
 
 
 ㅤㅤㅤㅤ ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
-ㅤ
 
+ㅤ
 
 **__DNI if you're...__**
 - A GenAI supporter
