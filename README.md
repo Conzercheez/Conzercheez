@@ -19,7 +19,8 @@
 - not really much to say except to feel free to int with us luh. just respect our boundaries.
 - [@**SOUPBEGONE31**](https://github.com/SOUPBEGONE31) hi lawl
 - we don't really initiate conversations a lot.
-
+  
+  > btw, just assume that i'm the one playing whenever you see us (unless stated otherwise) - Conzer
   ㅤ
   
 ㅤㅤㅤㅤ ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
