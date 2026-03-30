@@ -25,7 +25,11 @@
   
 ㅤㅤㅤㅤ ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
-ㅤ
+
+if you wanna know a bit more abt me specifically tho, feel free to check out my [pronouns.cc](https://pronouns.cc/@Conzercheez) yuh. - Conzer
+
+
+ㅤㅤㅤㅤ ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
   
 we're not to fond of writing out detailed infos.
 
