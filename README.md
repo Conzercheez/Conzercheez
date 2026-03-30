@@ -48,4 +48,3 @@ if you want to get to know us more, really, interacting is the best way to go.
 - A GenAI supporter
 - Racist, Anti-LGBTQ+, Ableist, Xenophobic etc.
 - If you're a piece of shit overall.
-- Sysmeds (no offense, its just mainly bc a lot of y'all are rude asf.)
