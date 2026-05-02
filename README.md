@@ -8,7 +8,7 @@
 
 ㅤㅤㅤㅤ ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
-20+ 🇲🇾
+20+ || 🇲🇾 || semi-source attached Conzercheez fictive
 
 i dont have much to say lawl feel free to int I dont bite
 
