@@ -9,14 +9,12 @@
 ㅤㅤㅤㅤ ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
 20+ ◉ 🇲🇾 ◉ semi-source attached Conzercheez fictive
-
-i dont have much to say lawl feel free to int I dont bite
-
-not the type to initiate first but i try sometimes
+- i dont have much to say lawl feel free to int I dont bite
+- not the type to initiate first but i try sometimes
 
 [@**SOUPBEGONE31**](https://github.com/SOUPBEGONE31) hi lawl ㅤ
 
-big fan of the psychonetworks
+big fan of the psychonetworks, esp SOUPBEGONE31 and xx_E-G-O_xx
 
 ~~hear me out on polynetworks plssssss~~
 
