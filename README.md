@@ -25,6 +25,7 @@ big fan of the psychonetworks, esp SOUPBEGONE31 and xx_E-G-O_xx
 - A GenAI supporter
 - Racist, Anti-LGBTQ+, Ableist, Xenophobic etc.
 - If you're a piece of shit overall.
+
 other than that i don't have a concrete DNI so just lmk if im interacting with some problematic ppl or smth
 <!--
 **Conzercheez/Conzercheez** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
