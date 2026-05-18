@@ -8,7 +8,7 @@
 
 ㅤㅤㅤㅤ ₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚
 
-20+ ◉ 🇲🇾 ◉ semi-source attached Conzercheez fictive
+20+ ◉ 🇲🇾 ◉ dumb ass Conzercheez fictive
 - i dont have much to say lawl feel free to int I dont bite
 - not the type to initiate first but i try sometimes
 
